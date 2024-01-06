@@ -15,7 +15,7 @@
 
 ### Step 2
 
-- Bring the mixture to a boil. Reduce heat to medium and simmer until thickened,  about 10 minutes.
+- Bring the mixture to a boil. Reduce heat to medium and simmer until thickened, about 10 minutes.
 
 ### Step 3
 
@@ -23,4 +23,4 @@
 
 ### Step 4
 
-- Store syrup in an airtight container for up to two weeks.
+- Store syrup in an airtight container for up to two weeks. Or three.
